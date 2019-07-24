@@ -1,0 +1,2 @@
+# dancok
+jadilah yang terbaik
